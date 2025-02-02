@@ -6,4 +6,4 @@ LightStep is a new and exciting game company based in Lebanon. We focus on fun d
 
 We hope to see you soon!
 
-Contact us at: 
+Contact us at: lightsteplb@gmail.com
